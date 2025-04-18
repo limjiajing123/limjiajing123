@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **limjiajing123@gmail.com**
 
-- 📄 Know about my experiences [https://limjiajing123.github.com/](https://limjiajing.com/)
+- 📄 Know about my experiences [https://limjiajing.com/](https://limjiajing.com/)
 
 - ⚡ Fun fact **I think I am funny haha**
 
